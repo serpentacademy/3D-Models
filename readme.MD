@@ -5,3 +5,8 @@
 
 
 ![alt text](https://github.com/serpentacademy/3D-Models/blob/master/intro.gif?raw=true)
+![alt text](https://arweave.net/hS0KuGNxfxUWjvxzs3FVz9XHZdKSU8dwV72JKVloZyw)
+
+
+
+<p><a href="https://apesascendance.com>By Apes Ascendance</a</p>
