@@ -5,7 +5,7 @@
 
 
 ![alt text](https://github.com/serpentacademy/3D-Models/blob/master/intro.gif?raw=true)
-![alt text](https://arweave.net/hS0KuGNxfxUWjvxzs3FVz9XHZdKSU8dwV72JKVloZyw)
+![alt text](https://quwqvoddof7rkfuo7rz3g4kvz7k4ozossjj4o4cxxwesswlim4wa.arweave.net/hS0KuGNxfxUWjvxzs3FVz9XHZdKSU8dwV72JKVloZyw)
 
 
 
